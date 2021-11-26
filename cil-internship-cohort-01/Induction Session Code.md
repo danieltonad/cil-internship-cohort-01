@@ -1,7 +1,0 @@
-# DAY 1 CODE: (JH98KDY), (IUS34JUS)
-
-# DAY 2 CODE: (AHD24KSH), (WERH234K)
-
-# DAY 3 CODE: (VFd84lfj), (Swq23k)
-
-# DAY 4 CODE: (BC93wre), (VFd32fes)
